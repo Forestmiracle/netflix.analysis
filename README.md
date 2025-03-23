@@ -1,1 +1,1 @@
-# netflix.analysys
+# netflix.analysy
