@@ -2,5 +2,5 @@ c
  zrr
 zbsjmsms,
  nxnxmx
-ckckk
+c
 khlhloj[
